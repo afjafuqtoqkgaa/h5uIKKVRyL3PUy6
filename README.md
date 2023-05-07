@@ -1,2 +1,1 @@
-# shizoval-cracked
-cracked
+# h5uIKKVRyL3PUy.js
